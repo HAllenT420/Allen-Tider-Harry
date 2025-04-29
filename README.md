@@ -1,4 +1,4 @@
-# HAllenT420
+# Allen Tider Harry
 
 ### 🚀 **About Me**  
 **Generative AI Engineer** | **Data Science Educator** | **Open-Source Advocate**  
